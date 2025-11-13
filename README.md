@@ -13,3 +13,9 @@ Please ensure that you check that anyone you are interested on commissioning on 
   - Links
     - [Twitter](https://x.com/Nokiaa__)
     - [Bluesky](https://bsky.app/profile/nokiah.bsky.social)
+- Trashcam
+  - Links
+    - [Ko-fi](https://ko-fi.com/trashcamsaysfrick/commissions)
+    - [Website](https://trashcam.org/)
+    - [Bluesky](https://bsky.app/profile/trashcam.org)
+    - [Twitter](https://x.com/Trashcam4Splon3)
