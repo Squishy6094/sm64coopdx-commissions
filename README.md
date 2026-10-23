@@ -19,3 +19,7 @@ Please ensure that you check that anyone you are interested on commissioning on 
     - [Website](https://trashcam.org/)
     - [Bluesky](https://bsky.app/profile/trashcam.org)
     - [Twitter](https://x.com/Trashcam4Splon3)
+- denpakei32
+  - Links
+    - [Twitter](https://x.com/denpakei32)
+    - [Bluesky](https://bsky.app/profile/denpakei32.bsky.social)
